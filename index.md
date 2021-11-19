@@ -9,4 +9,4 @@ Gastronomia imprez okolicznościowych z dowozem do klienta lub przygotowana na m
 
 ### Kontakt
 
-https://www.facebook.com/Wies%C5%82awa-Nowak-Catering-100243769157393/
+[Wieslawa Nowak Catering na Facebooku](https://www.facebook.com/Wies%C5%82awa-Nowak-Catering-100243769157393/)
